@@ -1,1 +1,1 @@
-# S--Series
+# S-Series
